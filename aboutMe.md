@@ -18,17 +18,17 @@ Master's student in Industrial Instrumentation / Data Scientist
 
 ### Biography
 
-* 2022: Bachelor's Degree in Control and Automation engineering from faculty of Hydrocarbons and Chemistry[here](https://fhc.univ-boumerdes.dz). 
-* 2020: English Perfection intermediate level, at INPED in Boumerdes
+* 2022: Bachelor's Degree in Control and Automation engineering from faculty of Hydrocarbons and Chemistry [here](https://fhc.univ-boumerdes.dz).[check out my diplome](diplome.jpeg) 
+* 2020: English Perfection intermediate level, at INPED in Boumerdes. [check out my certificate](inped.pdf)
 
 
 
 ### Recommendations for Mohammed Nadjib Salhi
-Senior Drilling Advisor 
+Senior Drilling Advisor at Sonatrach
 * Salim Sator
   * [recommendations](https://www.linkedin.com/in/mohammed-nadjib-allah-salhi-79669419a/details/recommendations/?detailScreenTabIndex=0)
 
 Mechanical Engineering ( Piping ) in Samsung C&T Corporation
-* Soufiane Mehlhal   
+* Soufiayne Mehalhal   
   * [recommendations](https://www.linkedin.com/in/mohammed-nadjib-allah-salhi-79669419a/details/recommendations/?detailScreenTabIndex=0)
 
